@@ -1,1 +1,0 @@
-# There-are-2-major-GSM-carriers-which-one-you-will-choose
